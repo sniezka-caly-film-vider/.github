@@ -1,3 +1,3 @@
 ## .github
 
-Oglądaj Śnieżka (2025) cda cały 
+Oglądaj Śnieżka (2025) cda cały film za darmo - 
